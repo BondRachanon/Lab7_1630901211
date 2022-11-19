@@ -1,2 +1,4 @@
-# Lab7_1630901211
+Rachanon Phoyu  
+Ce312 Homework : Lab  
+Section:336B  
  
